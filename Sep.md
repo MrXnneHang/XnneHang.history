@@ -40,7 +40,7 @@
 
 《hades2》★★★★
 
-![image-20240906172145231](C:\Users\Zhouyuan\AppData\Roaming\Typora\typora-user-images\image-20240906172145231.png)
+![image-20240906172145231](https://fastly.jsdelivr.net/gh/MrXnneHang/blog_img/BlogHosting/img/24/09/202409061723697.png)
 
 太肝了，没一代纯粹。但有趣的点也不少，比如搭配上我觉得流派更有意思主要是加了法阵和普特蓄力，而且操作更友好（时停卡牌）。游玩生命更长。
 但很多区域要咒语解锁，杀了boss快十次才知道要咒语解锁地表。新手不友好。
