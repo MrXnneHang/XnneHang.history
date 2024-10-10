@@ -12,3 +12,7 @@
 发现一个很有意思的文体：<br>
 
 [此视频致：活到23岁，这世上唯一令我震撼的人](https://www.bilibili.com/video/BV1YJ4m1N7P2)<br>
+
+## 10.9~10.10：MHW
+
+![image-20241010233412660](https://fastly.jsdelivr.net/gh/MrXnneHang/blog_img/BlogHosting/img/24/10/202410102334185.png)
